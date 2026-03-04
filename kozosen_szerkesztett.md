@@ -32,4 +32,13 @@ valami
 
 ## Kakuszi Ákos
 
+***szia itt vagyok***
+
+
+
+
+
+
 ## Kolop Balázs
+
+
