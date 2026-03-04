@@ -18,6 +18,7 @@
 
 ## Hajdu Krisztián
 
+15 éves vagyok, még 3 évig 9.-es tanuló
 ## Hajek Dániel
 
 ## Jevcsák Gergely
