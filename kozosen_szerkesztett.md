@@ -25,3 +25,6 @@
 ## Kakuszi Ákos
 
 ## Kolop Balázs
+
+*Ez én vagyok*
+
