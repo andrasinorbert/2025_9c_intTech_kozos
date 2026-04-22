@@ -11,6 +11,8 @@
 
 ## Dorogi Dániel
 
+gujgfufu
+
 ## Farkas Larion Péter
 
 ## Forgács Péter
